@@ -1,0 +1,4 @@
+# DONT USE MY SCRIPT
+IF YOU CLONE I WILL DELETE IT
+
+mansoorjamal2013@gmail.com
